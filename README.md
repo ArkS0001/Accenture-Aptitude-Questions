@@ -1,6 +1,10 @@
 # ACCENTURE EXAM DATES
 
-- Mock Assessment Test link & Admit card Release - Monday, August 19, 2024
+![giphy](https://github.com/user-attachments/assets/8f3f3fe5-5565-423a-96df-7fc229abfea9)
+
+
+
+- Mock Assessment Test link & Admit card Release -OCT2, 2024
 
 - Mock assessment Closure - Wednesday, August 21, 2024
 
